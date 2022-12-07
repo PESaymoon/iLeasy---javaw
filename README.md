@@ -1,4 +1,17 @@
 ===================================
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+ENCERRADO! Projeto encerrado! sem suport! Trash¹
+
+obs: Esse LIXO foi esvaziado.
 -----------------------------------
 Nao remova nenhum arquivo da pasta iljavaw , isso pode causar mal funcionamento no programa
 
